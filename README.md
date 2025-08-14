@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on Machine Learning
 - 📫 How to reach me https://www.linkedin.com/in/raj-dwivedi-549b43263
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Fast Learner,Tech Learner, AI & ML
+- ⚡ Fun fact: Fast Learner,AI Literate, Tech Learner, AI & ML
 
